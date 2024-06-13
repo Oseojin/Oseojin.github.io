@@ -1,1 +1,0 @@
-# Oseojin.github.io
